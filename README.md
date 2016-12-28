@@ -20,7 +20,7 @@ Lasod's pride got the better of him when spit flew from the dwarf's mouth, only 
 
 
 
-Chapter 2
+#Chapter 2
 
 
 
@@ -34,7 +34,7 @@ They headed back to the hamlet from which they came, and spread the word of thei
 
 
 
-Chapter 3
+#Chapter 3
 
 
 
@@ -44,7 +44,7 @@ Deep in the Winter of Spurning lies the tower of Wipeearth. According to legend,
 
 
 
-Chapter 4
+#Chapter 4
 
 
 
@@ -72,7 +72,7 @@ He read until there was nothing left to read, and then he knew. As he learned mo
 
 
 
-Chapter 6
+#Chapter 5
 
 
 
@@ -92,7 +92,7 @@ Twice he was attacked by blizzard men, and once by a sasquatch, but Lasod once a
 
 
 
-Chapter 7
+#Chapter 6
 
 
 
@@ -117,7 +117,7 @@ Istrath was by far the strongest opponent Lasod had ever faced. Even Slonu paled
 
 
 
-Chapter 8
+#Chapter 7
 
 
 
@@ -137,4 +137,39 @@ In the time following this, Lasod killed zombie after zombie and took many compa
 
 
 
-On that note, Lasod. decided it was time to take a lower profile, and settled into everyday life, living in the hamlet of Thimblewheels. That place was not to his liking, though, so he moved to the hamlet of Whiskedchambers. Months later, he
+On that note, Lasod. decided it was time to take a lower profile, and settled into everyday life, living in the hamlet of Thimblewheels. That place was not to his liking, though, so he moved to the hamlet of Whiskedchambers. Months later, he came out of his, albeit short, retirement. His time out of the spotlight of adventure had served him well, and his wounds had retreated under his skin to become just scars, and his name was still only his own, not a legend out of his control.
+
+
+
+
+#Chapter 8
+
+
+
+
+In his obsession with gaining power, Lasod sought out battle. he longed for it in every moment, not as a passion, but as a means to an end. And so, on his journey to greatness, he came upon The Squashed Crypt of Springspines. With him was his new companion, Opra Revereforest. At this point, they came and went so frequently that even he himself barely knew their names. 
+
+The duo came upon a door, and Lasod, at his typical sprint, ran up to pick the lock. Within moments, it swung open. The door resisted as far as it could, but the strength of old cobwebs are no match for superhuman strength. The crypt was open to their eyes, the first to see it in a century or more. 
+
+There, not far from the entrance, stood a slab of rock. Engraved upon it was a message that could only have been meant for them. Gazing upon the slab they saw a message which forbade them from going any further, but that did not stop them. They delved deeper into the tomb, finding skeletons which were nearly innumerable. Beyond the skeletons, laid a sarcophagus. Forged of valued metals, housing the one who could only have been the leader of all these skeletons.
+
+Leaving no time for them to admire the craftsmanship of such a sarcophagus, its lid slid to the side, exposing the ghoul that sat up from within it. Bandaged skin and bone climbed out of the coffin, and with it the fossilized bones that were strewn around. They built themselves up into human figures, lacking in flesh, but making up for it in number. 
+
+Lasod drew his iron longsword and started to mow down the skeletons. From each one, off a skull flew. The real goal was not the skeletons, but the mummy. Skeletons were no match even for a kick to the skull or neck. Their bones of their arms could not even hold on to one another. Each lopped off hand rose up as its own challenge, but numbers are the strategy of the fools and the lazy. Lasod charged through the crowd toward the enemy that laid in the center. The bony hands of his opponents were tied up ripping off the flesh of his once companion, which left the chance for a duel.
+
+Lasod positioned his sword, and Onec swung his knife. The speed and agility of a body that has been rotting for decades time is hard to match. It has all the skills of a life well lived, and only a fraction of the weight hold its body down. The mummy's blade came down with such speed that Lasod could only dodge directly at Onec. They became entangled, and as Lasod blocked blow after blow, he came upon a lucky opportunity, and took it, without hesitation. Off flew the head of the mummy. 
+
+
+
+
+Onec was not the only one, and the Squashed Crypt was only the first of many in Springspines. Lasod snuffed out the unnatural flames of life in the tomb, leaving no skeletons alive. Even without his companion, he took it upon himself to destroy the Nourishing Crypt. There he killed two more mummies, Therset Stokedcluster and Islas Zephyrshoves. 
+
+
+
+
+#Chapter 9
+
+
+
+
+Lasod began to entertain the idea of where he would end up in this world. After all, he had all the time there could ever be to exist in it. He wanted glory and a comfortable life in the meantime before he would achieve his larger goal.
